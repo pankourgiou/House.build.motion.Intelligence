@@ -1,0 +1,1 @@
+Download the .html and double click it and you have an analysis of a wooden house building timelapse video. there is a heat map showing how the workers did the job stats and motion tracking so that we make the heatmap. The idea is simple. what you do calling it a job..do it the best way you can why not, make it trully epic. enjoy!
